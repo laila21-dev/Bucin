@@ -1,0 +1,2 @@
+# Bucin
+Aplikasi bucin ahahhaa
